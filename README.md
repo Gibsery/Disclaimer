@@ -16,3 +16,7 @@ Do not talk to me about my hyperfixations unless you’re genuinely interested i
 I tend to ramble and I’m very passionate about these subjects.
 Disinterest in my hyperfixations is extremely discouraging to me and I almost always take it personally.
 If that concerns you, it might be best not to talk about these things at all.
+
+Transphobes, homophobes, proshippers, racists, etc get shot on site
+
+![tumblr_inline_rhcu8uwtPX1xu1f1k_500](https://user-images.githubusercontent.com/90217469/193159755-70a57ff6-5722-4c6b-8612-cc1dfec228f6.jpg)
