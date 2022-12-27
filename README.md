@@ -1,7 +1,7 @@
 !!MY CONTENT CONTAINS UNTAGGED UNREALITY/PARANOIA!!
 
 if you need trigger tags for weirdcore, dereality, etc…  dont
-follow this hub, because that’s all i post
+follow this hub, because that’s all i do
 
 
 If you’re interacting with me, please understand that I am neurodivergent.
